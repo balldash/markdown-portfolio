@@ -1,0 +1,4 @@
+- *Fast learner*
+- Patient
+- _Team player_
+- *__Critical thinker__*
